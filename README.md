@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @ErikaUhart
 - 👀 I’m interested in you 😉
 - 🌱 I’m currently learning everything 
-- 💞️ I’m looking to collaborate on everythingthe the teacher sends
+- 💞️ I’m looking to collaborate on everything the teacher sends
 - 📫 How to reach me? don't do it 
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: 😐
